@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @PraveenKumarAkumarthi
+- 👀 I love Technology
+- 👀 I love Innovation
+- 👀 I'm interested in knowing about the future and love to work on it
+- 🌱 I’m currently persuing Master Of Technology in BIG DATA ANALYTICS(2020-2022)
+- 📫 How to reach me MAIL ME - AKUMARTHI.KUMAR99@GMAIL.COM
